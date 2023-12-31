@@ -1,0 +1,2 @@
+- Yes. This account is official.
+- @CreatorWesley
